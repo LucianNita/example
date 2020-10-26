@@ -2,3 +2,4 @@
 * 1/2 lime
 * 2 tsp salt
 * 1/2 onion
+* 2 tbsp coriander
